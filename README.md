@@ -1,1 +1,1 @@
-# Mazowe-HIgh-School
+# Mazowe-High-School
